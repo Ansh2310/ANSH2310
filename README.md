@@ -17,8 +17,11 @@ I usually focus on backend development and I love web development alot. . I thin
 📫 How to reach me:
 
 Discord: ŘĦ↝ 𝙭 𝙵𝙷𝚃 𒍟 𝙭  𝓐K𝓥| ANSH #0562
+
 Youtube: Anshuman
+
 GitHub: Ansh2310 
+
 😄 Pronounce He, Him
 
 😀 I want to know Python, HTML, CSS, JavaScript, Java, CSharp and NodeJs

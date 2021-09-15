@@ -16,6 +16,8 @@ I usually focus on backend development and I love web development alot. . I thin
 
 📫 How to reach me:
 
+DISCORD SERVER : https://discord.gg/N8tkakcKZ4
+
 Discord: ŘĦ↝ 𝙭 𝙵𝙷𝚃 𒍟 𝙭  𝓐K𝓥| ANSH #0562
 
 Youtube: Anshuman
